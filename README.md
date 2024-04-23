@@ -1,0 +1,1 @@
+# Actividad-1.6-Trayectorias-de-lazo-abierto
